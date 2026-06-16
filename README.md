@@ -1,5 +1,5 @@
 <p align="center"> <img width="880" height="200" alt="image" src="https://i.postimg.cc/13PgpBk6/Untitled1861-20260614170837.png" /> </p>
-<img align="right" width="320" height="410" alt="image" src="https://i.postimg.cc/0QpT7BV7/IMG-5205.png" /> ‎ 
+<img align="right" width="320" height="410" alt="image" src="https://i.postimg.cc/J4ypcxVQ/Untitled2805-20260616123800.png" /> ‎ 
 
 <p align="left">               ‎                    ‎   ‎        ‎‎‎  ‎   ‎ ‎       ‎  ‎‎‎      ‎‎‎ ‎          ⊹ ࣪ ˖  ‎   ‎   ‎  ‎   ‎  ‎    ‎   ‎   ‎   ‎ ‎   ‎   ‎ ‎    noah</p>
 <p align="left"> ‎ ‎  ‎                ‎         ‎      ‎       ‎  ‎  ‎ ‎  ‎  ‎  ‎  ‎ derek ‎   ‎   ‎   ‎   ‎   ‎       ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎    ‎  ‎<img src="https://komarev.com/ghpvc/?username=C00LKIDDFORSAKEN&color=blueviolet&label=👑"> ‎</p>
