@@ -2,7 +2,7 @@
 <img align="right" width="320" height="410" alt="image" src="https://i.postimg.cc/0QpT7BV7/IMG-5205.png" /> ‎ 
 
 <p align="left">               ‎                    ‎   ‎        ‎‎‎  ‎   ‎ ‎       ‎  ‎‎‎      ‎‎‎ ‎          ⊹ ࣪ ˖  ‎   ‎   ‎  ‎   ‎  ‎    ‎   ‎   ‎   ‎ ‎   ‎   ‎ ‎    noah</p>
-<p align="left"> ‎ ‎  ‎                ‎         ‎      ‎       ‎  ‎  ‎ ‎  ‎  ‎  ‎  ‎ derek ‎   ‎   ‎   ‎   ‎   ‎       ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎    ‎  ‎<img src="https://komarev.com/ghpvc/?username=C00LKIDDFORSAKEN&color=blueviolet&label=:crown:"> ‎</p>
+<p align="left"> ‎ ‎  ‎                ‎         ‎      ‎       ‎  ‎  ‎ ‎  ‎  ‎  ‎  ‎ derek ‎   ‎   ‎   ‎   ‎   ‎       ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎    ‎  ‎<img src="https://komarev.com/ghpvc/?username=C00LKIDDFORSAKEN&color=blueviolet&label=👑"> ‎</p>
 <p align="left"> ‎ ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎   ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎     ‎  ‎    wemmbu </p>
 <p align="left">   ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎   ‎  ‎𓏵</p> 
 <p align="center"> <img width="400" height="70" alt="image" src="https://i.postimg.cc/L4w0DC3h/tumblr-0c2a564c30410a15dd70596e49373763-316b5189-1280.png" /> </p>
