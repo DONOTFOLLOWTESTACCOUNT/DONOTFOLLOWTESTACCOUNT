@@ -1,5 +1,5 @@
 <p align="center"> <img width="880" height="200" alt="image" src="https://i.postimg.cc/QdZFJxNT/Untitled2276-20260803025521.png" /> </p>
-<img align="right" width="380" height="415" alt="image" src="https://i.postimg.cc/rFBrZNjT/Untitled2294-20260803025551.png" /> ‎ 
+<img align="right" width="320" height="360" alt="image" src="https://i.postimg.cc/rFBrZNjT/Untitled2294-20260803025551.png" /> ‎ 
 
 <img align="right" width=“310” height="230" alt="image" src="https://i.postimg.cc/DyLrTN8p/Untitled2436-20260803025852.png" /> ‎
 
