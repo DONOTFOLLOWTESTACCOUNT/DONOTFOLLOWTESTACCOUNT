@@ -1,7 +1,7 @@
 <p align="center"> <img width="880" height="200" alt="image" src="https://i.postimg.cc/QdZFJxNT/Untitled2276-20260803025521.png" /> </p>
 <img align="right" width="340" height="380" alt="image" src="https://i.postimg.cc/rFBrZNjT/Untitled2294-20260803025551.png" /> ‎ 
 
-<img align="right" width=“310” height="250" alt="image" src="https://i.postimg.cc/DyLrTN8p/Untitled2436-20260803025852.png" /> ‎
+<img align="right" width=“340” height="280" alt="image" src="https://i.postimg.cc/DyLrTN8p/Untitled2436-20260803025852.png" /> ‎
 
   ‎   ‎    ‎‎   ‎ ‎  ‎    ‎     ‎  ‎    ‎    ‎     ‎  ‎    ‎ ‎     ‎  ‎     ‎  ![dontcare](https://i.postimg.cc/P5Rv8GVJ/Untitled2331-20260803033920.png) [![code](https://i.postimg.cc/SswJJyJT/Untitled2331-20260803033035.png)](https://rentry.co/gn8df9my) ‎ ‎‎ ‎‎ ‎‎ ‎ ‎ ‎‎ ‎ 
 
