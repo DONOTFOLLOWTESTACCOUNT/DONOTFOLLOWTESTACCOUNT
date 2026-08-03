@@ -1,14 +1,15 @@
-<p align="center"> <img width="880" height="200" alt="image" src="https://i.postimg.cc/13PgpBk6/Untitled1861-20260614170837.png" /> </p>
-<img align="right" width="320" height="410" alt="image" src="https://i.postimg.cc/J4ypcxVQ/Untitled2805-20260616123800.png" /> ‎ 
+<p align="center"> <img width="880" height="200" alt="image" src="https://i.postimg.cc/QdZFJxNT/Untitled2276-20260803025521.png" /> </p>
+<img align="right" width="320" height="340" alt="image" src="https://i.postimg.cc/rFBrZNjT/Untitled2294-20260803025551.png" /> ‎ 
 
-<p align="left">               ‎                    ‎   ‎        ‎‎‎  ‎   ‎ ‎       ‎  ‎‎‎      ‎‎‎ ‎          ⊹ ࣪ ˖  ‎   ‎   ‎  ‎   ‎  ‎    ‎   ‎   ‎   ‎ ‎   ‎   ‎ ‎    noah</p>
-<p align="left"> ‎ ‎  ‎                ‎         ‎      ‎       ‎  ‎  ‎ ‎  ‎  ‎  ‎  ‎ derek ‎   ‎   ‎   ‎   ‎   ‎       ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎     ‎    ‎  ‎<img src="https://komarev.com/ghpvc/?username=C00LKIDDFORSAKEN&color=blueviolet&label=👑"> ‎</p>
-<p align="left"> ‎ ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎   ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎     ‎  ‎    wemmbu </p>
-<p align="left">   ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎   ‎  ‎𓏵</p> 
-<p align="center"> <img width="400" height="70" alt="image" src="https://i.postimg.cc/L4w0DC3h/tumblr-0c2a564c30410a15dd70596e49373763-316b5189-1280.png" /> </p>
+<img align="right" width=“300” height="220" alt="image" src="https://i.postimg.cc/DyLrTN8p/Untitled2436-20260803025852.png" /> ‎
+
+
+<p align="left"> <img width="200" height="130" alt="image" src="https://i.postimg.cc/SKW3YdTR/Untitled2303-20260803025631.png" /> </p>
  ‎    ‎     ‎  ‎    ‎      ‎   ‎    ‎‎   ‎ ‎   ‎     ‎       <a href="nothing">mentor</a> ‎ ‎ ‎ ‎ ‎ <a href="nothing/">新book</a> ‎ ‎‎  dont you think its kind of dumb how we’re fighting for people way weaker than both of us‎ ‎ ‎‎ ‎    ‎   ‎ ‎   ‎    ‎    ‎‎    ‎⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀  ‎‎‎ ‎<a href="nothing">rentry </a>    ⠀⠀⠀⠀⠀  ‎read rentry byi
  </p>
 
 <sub> only looks good on pc </sub>
 
 <p align="center"> <img width="900" height="150" alt="image" src="https://i.postimg.cc/zvcjyMtz/Untitled1861-20260614171006.png" /> </p>
+
+‎‎<img src="https://komarev.com/ghpvc/?username=C00LKIDDFORSAKEN&color=blueviolet&label=👑"> ‎</p>
