@@ -5,8 +5,7 @@
 
   ‎   ‎    ‎‎   ‎ ‎  ‎    ‎     ‎  ‎    ‎    ‎     ‎  ‎    ‎ ‎     ‎  ‎     ‎  ![dontcare](https://i.postimg.cc/P5Rv8GVJ/Untitled2331-20260803033920.png) [![code](https://i.postimg.cc/SswJJyJT/Untitled2331-20260803033035.png)](https://rentry.co/gn8df9my) ‎ ‎‎ ‎‎ ‎‎ ‎ ‎ ‎‎ ‎ 
 
- ‎    ‎     ‎  ‎    ‎      ‎   ‎    ‎‎   ‎ ‎   ‎     ‎      ‎   ‎    ‎‎   ‎    ‎   ‎    ‎‎   ‎    ‎   ‎    ‎‎   ‎    ‎   ‎    ‎‎   ‎    ‎   ‎    ‎‎   ‎    ‎   ‎    ‎‎   ‎    ‎   ‎    ‎‎   ‎    ‎   ‎    ‎‎   ‎        ‎   ‎    ‎‎   ‎    ‎   ‎    ‎‎   ‎    ‎   ‎    ‎‎   ‎    ‎   ‎    ‎‎   ‎    ‎   ‎    ‎‎   ‎    ‎   ‎    ‎‎   ‎    ‎   ‎    ‎‎   ‎    ‎   ‎    ‎‎   ‎    ‎   ‎    ‎‎   ‎    ‎   ‎    ‎‎   ‎    ‎   ‎    ‎‎   ‎    ‎   ‎    ‎‎   ‎    ‎   ‎    ‎‎   ‎    ‎   ‎    ‎‎   ‎    ‎   ‎    ‎‎   ‎    ‎   ‎  ‎   ‎    ‎   ‎  ‎   ‎    ‎   ‎    ‎   ‎    ‎   ‎     <a href="nothing/">新book</a>‎‎‎ ‎ ‎ ‎ ‎    ‎   ‎      ‎   ‎      ‎  ‎       ‎        ‎ <img src="https://komarev.com/ghpvc/?username=C00LKIDDFORSAKEN&color=blueviolet&label=👑"> ‎</p>     ‎   ‎      ‎   ‎     ‎ <a href="nothing">mentor</a>
-
+ ‎    ‎     ‎  ‎    ‎      ‎   ‎    ‎‎   ‎ ‎   ‎     ‎      ‎   ‎    ‎‎   ‎    ‎   ‎    ‎‎   ‎    ‎   ‎    ‎‎   ‎    ‎   ‎     ‎   ‎    ‎‎   ‎    ‎   ‎     ‎   ‎    ‎‎   ‎    ‎   ‎     ‎   ‎    ‎‎   ‎    ‎   ‎     ‎   ‎    ‎‎   ‎    ‎   ‎     ‎   ‎    ‎‎   ‎    ‎   ‎     ‎   ‎    ‎‎   ‎    ‎   ‎     ‎   ‎    ‎‎   ‎    ‎   ‎     ‎   ‎    ‎‎   ‎    ‎   ‎     ‎   ‎    ‎‎   ‎    ‎   ‎     ‎    ‎   ‎    ‎‎   ‎    ‎   ‎     ‎   ‎    ‎‎   ‎    ‎   ‎    ‎    ‎‎   ‎    ‎   ‎     ‎   ‎    ‎‎   ‎    ‎   ‎     ‎   ‎    ‎‎   ‎    ‎‎    ‎‎  [![code](https://i.postimg.cc/ryrNdr0S/image-2026-08-03-172509964-45.png)](https://rentry.co/gn8df9my)  ‎   ‎     ‎   ‎    ‎‎   [![code](https://i.postimg.cc/PxZhsJCZ/image-2026-08-03-171142874-1-42.png)](https://rentry.co/gn8df9my)  ‎    ‎   ‎    ‎‎   ‎    ‎   ‎    ‎‎   ‎    ‎   ‎    ‎‎   ‎    ‎   ‎    ‎‎   ‎        ‎   ‎    ‎‎   ‎    ‎   ‎    ‎‎   ‎    ‎   ‎    ‎‎   ‎    ‎   ‎    ‎‎   ‎    ‎   ‎    ‎‎   ‎    ‎   ‎    ‎‎   ‎    ‎   ‎    ‎‎   ‎    ‎   ‎    ‎‎   ‎    ‎   ‎  
 <sub> only looks good on pc </sub>
 
 <p align="center"> <img width="900" height="150" alt="image" src="https://i.postimg.cc/zvcjyMtz/Untitled1861-20260614171006.png" /> </p>
@@ -15,3 +14,10 @@
 ‎‎<img src="https://komarev.com/ghpvc/?username=C00LKIDDFORSAKEN&color=blueviolet&label=👑"> ‎</p>
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎  ‎ ‎  ‎‎‎ ‎ ‎ [![code](https://i.postimg.cc/SswJJyJT/Untitled2331-20260803033035.png)](https://rentry.co/gn8df9my) ‎ ‎‎ ‎‎ ‎‎ ‎ ‎ ‎‎ ‎ 
+
+
+
+[![code](https://i.postimg.cc/PxZhsJCZ/image-2026-08-03-171142874-1-42.png)](https://rentry.co/gn8df9my) 
+
+
+ ‎    ‎     ‎  ‎    ‎      ‎   ‎    ‎‎   ‎ ‎   ‎     ‎      ‎   ‎    ‎‎   ‎    ‎   ‎    ‎‎   ‎    ‎   ‎    ‎‎   ‎    ‎   ‎    ‎‎   ‎    ‎   ‎    ‎‎   ‎    ‎   ‎    ‎‎   ‎    ‎   ‎    ‎‎   ‎    ‎   ‎    ‎‎   ‎        ‎   ‎    ‎‎   ‎    ‎   ‎    ‎‎   ‎    ‎   ‎    ‎‎   ‎    ‎   ‎    ‎‎   ‎    ‎   ‎    ‎‎   ‎    ‎   ‎    ‎‎   ‎    ‎   ‎    ‎‎   ‎    ‎   ‎    ‎‎   ‎    ‎   ‎    ‎‎   ‎    ‎   ‎    ‎‎   ‎    ‎   ‎    ‎‎   ‎    ‎   ‎    ‎‎   ‎    ‎   ‎    ‎‎   ‎    ‎   ‎    ‎‎   ‎    ‎   ‎    ‎‎   ‎    ‎   ‎  ‎   ‎    ‎   ‎  ‎   ‎    ‎   ‎    ‎   ‎    ‎   ‎     <a href="nothing/">新book</a>‎‎‎ ‎ ‎ ‎ ‎    ‎   ‎      ‎   ‎      ‎  ‎       ‎        ‎ <img src="https://komarev.com/ghpvc/?username=C00LKIDDFORSAKEN&color=blueviolet&label=👑"> ‎</p>     ‎   ‎      ‎   ‎     ‎ <a href="nothing">mentor</a>
