@@ -14,10 +14,6 @@
 
 <p align="center"> <img width="900" height="150" alt="image" src="https://i.postimg.cc/J0zy5S7b/image-2026-08-03-174856666.png" /> </p>
 
-<p align="center"> <img width="588" height="50" alt="image" src="https://github.com/user-attachments/assets/22ebd0e3-c916-436a-b638-2cbcdc08e556" /> </p
-
-
-
 
 
 
